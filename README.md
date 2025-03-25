@@ -1,1 +1,1 @@
-# 2025-BPO-1-G1_SportUp
+# 2025-BPO-1-G1_SportsUp
